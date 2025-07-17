@@ -1,9 +1,10 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=w2e&color=b8b8b8&style=plastic&label=.♡)
+![](https://komarev.com/ghpvc/?username=w2e&color=60d2d8&style=plastic&label=.♡)
 
-<a href="https://themonarchy.atabook.org/"><img src="https://github.com/user-attachments/assets/3889996d-904e-4bf2-8a01-b00d91725fbe" width="100"/></a>
+<a href="https://themonarchy.atabook.org/"><img src="https://github.com/user-attachments/assets/07ac615a-53bc-42ef-8cf5-6f6f78507dac" width="100"/></a>
 ---
-<img src="https://github.com/user-attachments/assets/ac00b9d3-9e56-4bfa-bbd2-3d22c63187f1" width="50%" /></p>
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Shadows+Into+Light&size=24&pause=1000&color=000000&center=true&&width=1050&lines="You+were+always+stronger+than+me...Isamu,+even+when+I+tried+to+drag+you+down.";+"I+took+everything+away+from+the+world.+And+still,+you+chose+to+spare+me.";+"I+didn't+deserve+your+forgiveness...+Yet+you+gave+it+with+your+final+breath.";+"They'll+sing+songs+of+your+courage,+Isamu.+But+no+one+will+remember+the+coward+you+saved.";+"It+turns+out+that+Enzukai+is+no+better+than+our+father...+What+a+way+for+this+god+forsaken+memory+to+repeat+itself.";+"If+I+could+trade+places+with+you...+I+would,+a+thousand+times+over.";+"The+world+wants+justice...+And+I+won't+run.";+"I'll+spend+the+rest+of+my+life+behind+bars,+paying+for+what+I've+done.";+"Rest+now,+little+brother.+I'll+carry+this+shame+until+the+day+I+join+you.")](https://git.io/typing-svg)
+<img src="https://github.com/user-attachments/assets/cb3fc25f-266c-4ea8-9043-56b0b55cc0db" width="58%"/></p>
+![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&size=24&pause=1000&color=19294e&center=true&&width=1050&lines="+I+will+protect+my+family.+";"+...even+if+it+means+turning+all+the+hunters+in+the+world+against+me.+";"+If+I+don’t+kill,+I+will+be+killed.+";"+I+can’t+run+away+anymore.+";Sung+Jinwoo.)
+
 <img src="https://github.com/user-attachments/assets/85613f4e-d4ea-4ef7-8b72-b958f524408d" width="30%" /></p>
