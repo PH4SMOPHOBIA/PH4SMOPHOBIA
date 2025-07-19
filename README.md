@@ -7,4 +7,10 @@
 <img src="https://github.com/user-attachments/assets/cb3fc25f-266c-4ea8-9043-56b0b55cc0db" width="58%"/></p>
 ![Typing SVG](https://readme-typing-svg.demolab.com?font=Satisfy&size=30&pause=1000&color=19294e&center=true&&width=1050&lines="+I+will+protect+my+family.+";"+...even+if+it+means+turning+all+the+hunters+in+the+world+against+me.+";"+If+I+don’t+kill,+I+will+be+killed.+";"+I+can’t+run+away+anymore.+";-+Sung+Jinwoo.)
 
-<img src="https://github.com/user-attachments/assets/85613f4e-d4ea-4ef7-8b72-b958f524408d" width="30%" /></p>
+---
+I love the mimiccc byeeeee
+
+<img src="https://github.com/user-attachments/assets/85613f4e-d4ea-4ef7-8b72-b958f524408d" width="30%"/></p>
+<img src="https://github.com/user-attachments/assets/fda02b21-386d-4bc4-80ee-bfdd0d1e352f"/> <img src="https://github.com/user-attachments/assets/d6c6b83a-f7e0-4806-8686-ef7af7c81df8"/>
+
+@midsummerbliss thenkU hey its my GOAT SHIHYOSHA/SHINIGAMI YAAAAY
