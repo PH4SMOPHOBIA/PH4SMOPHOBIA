@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=w2e&color=415365&style=plastic&label=.♡)
+![](https://komarev.com/ghpvc/?username=w2e&color=415365&style=plastic&label=´◡`)
 
 <a href="https://themonarchy.atabook.org/"><img src="https://github.com/user-attachments/assets/15a6659d-e102-47bd-aa2b-aa278fc225b3" width="100"/></a>
 ---
