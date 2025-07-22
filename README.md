@@ -7,9 +7,17 @@
 <img src="https://github.com/user-attachments/assets/3a3510bc-e47e-4041-be26-d1888846d1dd" width="45%"/></p>
 
 ---
-I love the mimiccc byeeeee
+
+![Typing SVG](https://readme-typing-svg.demolab.com?font=Cormorant+Garamond&color=000000&size=30&pause=2000&center=true&width=1400&lines="+You+were+always+stronger+than+me...+Isamu,+even+when+I+tried+to+drag+you+down.+";"+I+took+everything+away+from+the+world.+And+still,+you+chose+to+spare+me.+";"+I+didn't+deserve+your+forgiveness...+Yet+you+gave+it+with+your+final+breath.+";"+They'll+sing+songs+of+your+courage,+Isamu.+But+no+one+will+remember+the+coward+you+saved.+";"+It+turns+out+that+Enzukai+is+no+better+than+our+father...+What+a+way+for+this+god+forsaken+memory+to+repeat+itself.+";"+If+I+could+trade+places+with+you...+I+would,+a+thousand+times+over.+";"+The+world+wants+justice...+And+I+won't+run.+";"+I'll+spend+the+rest+of+my+life+behind+bars,+paying+for+what+I've+done.+";"+Rest+now,+little+brother.+I'll+carry+this+shame+until+the+day+I+join+you.+")
+
+<img src="https://github.com/user-attachments/assets/fd2e61fd-fb91-49cb-a264-850f5b16c614" width="30%"/>
+
+art by my friend *@midsummerbliss* WOW!
+
+---
+**I love the mimicc YAAY!**
 
 <img src="https://github.com/user-attachments/assets/85613f4e-d4ea-4ef7-8b72-b958f524408d" width="30%"/></p>
 <img src="https://github.com/user-attachments/assets/fda02b21-386d-4bc4-80ee-bfdd0d1e352f"/> <img src="https://github.com/user-attachments/assets/d6c6b83a-f7e0-4806-8686-ef7af7c81df8"/>
 
-@midsummerbliss
+***@midsummerbliss***
