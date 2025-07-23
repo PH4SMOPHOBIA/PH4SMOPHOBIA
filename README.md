@@ -2,7 +2,9 @@
 
 ![](https://komarev.com/ghpvc/?username=w2e&color=415365&style=plastic&label=´◡`)
 
-<a href="https://4phasmo.atabook.org/"><img src="https://github.com/user-attachments/assets/15a6659d-e102-47bd-aa2b-aa278fc225b3" width="100"/></a>
+<a href="https://4phasmo.atabook.org/">ATABOOK</a></p>
+<a href="https://phasmo.straw.page/">STRAWPAGE</a>
+
 ---
 
 <img src="https://github.com/user-attachments/assets/c081c692-b7fd-4be9-89b3-5af9fd2e5199"/>
