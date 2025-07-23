@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=w2e&color=415365&style=plastic&label=´◡`)
+![](https://komarev.com/ghpvc/?username=w2e&color=000000&style=plastic&label=´◡`)
 
 <a href="https://4phasmo.atabook.org/">ATABOOK</a></p>
 <a href="https://phasmo.straw.page/">STRAWPAGE</a>
