@@ -7,14 +7,22 @@
 
 ---
 
-<img src="https://github.com/user-attachments/assets/c081c692-b7fd-4be9-89b3-5af9fd2e5199"/>
+<img src="https://github.com/user-attachments/assets/b6645e79-012a-45ed-8538-180a70622e0b" width="70%"/>
 <img src="https://github.com/user-attachments/assets/cc097eb1-1bf1-45f7-b239-aa8b942976aa"/>
+<img src="https://github.com/user-attachments/assets/c081c692-b7fd-4be9-89b3-5af9fd2e5199"/>
+
 
 ![Typing SVG](https://readme-typing-svg.demolab.com?font=Playfair+Display&color=000000&size=30&pause=2000&center=true&width=1550&lines="+I'm+planning+on+keeping+him+at+a+distance...+";"+As+long+as+I+can+build+a+world+in+which+he+can+be+happy...+";"+...Then,+the+choice+is+worth+it.+";"+...+";"+I+remember+when+you+used+to+come+crying+to+me+about+the+slightest+things.+";"+You've+grown+up...+";"+...Finn.+")
 
-*Rayne Ames.*
-
 ---
+ </p>ㅤ
+  </p>ㅤ
+   </p>ㅤ
+    </p>ㅤ
+     </p>ㅤ
+      </p>ㅤ
+       </p>ㅤ
+       
 **I love the mimicc YAAY!**
 
 <img src="https://github.com/user-attachments/assets/85613f4e-d4ea-4ef7-8b72-b958f524408d" width="30%"/></p>
